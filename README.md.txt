@@ -1,0 +1,1 @@
+O curso esta bom, mas poderia ser mais bem estruturado na questão de sequencias do que fazer primeiro.
